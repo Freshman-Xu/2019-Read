@@ -1,1 +1,1 @@
-《大产品，小团队》   读者服务：http://wwww.baoadview.com.cn/32903
+《大产品，小团队》   读者服务：http://www.broadview.com.cn/32903
